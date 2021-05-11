@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Abdul Ajij Ansari
+- 👀 I’m interested in Coding and Cricket
+- 🌱 I’m currently learning Android technology.
+- 💞️ I’m looking to collaborate on ..........
+- 📫 you can reach me on abdul002ajij@gmail.com
